@@ -10,4 +10,4 @@
 
 平台提供多样的亚洲视频内容，从综合推荐到加勒比区域精彩资源应有尽有。所有视频支持极速播放与高清体验，无广告，确保您享受最流畅的观影体验。资源更新及时，随时随地畅享各类精品内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/lvs20250708/lvs07 ）</span>
